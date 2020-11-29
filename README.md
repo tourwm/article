@@ -1,2 +1,0 @@
-# article
-kubbe-i ask
